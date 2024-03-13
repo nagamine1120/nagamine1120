@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+## HOW to reach me
+- email　[ynp.negamine.rei001@gmail.com]
+
